@@ -14,7 +14,7 @@ My background is in Electronics And Communication Engineering. I worked as an AW
 
 ## First Computing Device
 
-My first computing device was a [Nokia 1600](https://en.wikipedia.org/wiki/Commodore_64 "Wiki page for Nokia 1600") (2006).
+My first computing device was a [Nokia 1600](https://en.wikipedia.org/wiki/Nokia_1600 "Wiki page for Nokia 1600") (2006).
 
 ## Something Interesting About You
 
